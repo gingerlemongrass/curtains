@@ -19,3 +19,8 @@ since feeling is first
 who pays any attention 
 to the syntax of things
 will never wholly kiss you;
+
+wholly to be a fool
+while Spring is in the world
+
+
