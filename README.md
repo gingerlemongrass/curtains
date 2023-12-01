@@ -19,3 +19,10 @@ since feeling is first
 who pays any attention 
 to the syntax of things
 will never wholly kiss you;
+
+my blood approves,
+and kisses are a better fate 
+than wisdom
+lady i swear by all flowers. Don’t cry
+—the best gesture of my brain is less than
+your eyelids’ flutter which says
