@@ -13,3 +13,9 @@ Haply I think on thee, and then my state,
 From sullen earth) sings hymns at heaven’s gate;
        For thy sweet love remembered such wealth brings
        That then I scorn to change my state with kings.
+
+
+since feeling is first
+who pays any attention 
+to the syntax of things
+will never wholly kiss you;
