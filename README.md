@@ -26,3 +26,9 @@ than wisdom
 lady i swear by all flowers. Don’t cry
 —the best gesture of my brain is less than
 your eyelids’ flutter which says
+
+we are for each other: then
+laugh, leaning back in my arms
+for life’s not a paragraph
+
+And death i think is no parenthesis
